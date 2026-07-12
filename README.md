@@ -1,1 +1,1 @@
-# GG-ESEA-Steam-Key--github
+# GG-ESEA-Steam-Key-github
